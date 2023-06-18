@@ -1,6 +1,3 @@
-;mic;mocm;
-lkdsclkaenmf
-dsl
+i ta sq za kwo go napisa
 
-
-kmsc;ksao
+nqma[ nikakwa ideq kwo se sluchi
